@@ -1,0 +1,6 @@
+Beatriz, Jovem de 20, passará o final de semana na cidade.
+
+Pela manhã de sábado, reunidos pelo aplicativo, o grupo se reúne na praça central de Quixadá, cada membro ansioso por descobrir o que a cidade reserva. Guiados pelo aplicativo, exploram praças escondidas, cafés acolhedores, murais de arte de rua, parques exuberantes e locais históricos, enquanto os desafios propostos acrescentam uma pitada de emoção à exploração.
+Durante a tarde, o grupo enfrenta um desafio fotográfico, capturando momentos divertidos em diferentes pontos turísticos, o aplicativo sugere um desafio fotográfico no mirante da cidade, incentivando todos a capturar a vista panorâmica de Quixadá de maneira única. 
+Ao anoitecer, o grupo se encontra em uma apresentação cultural local, uma sugestão do aplicativo com base nos interesses compartilhados do grupo e para acrescentar um desafio de comida local os leva a experimentar iguarias regionais em um restaurante acolhedor.
+O aplicativo não apenas torna a experiência mais dinâmica, mas também serve como um registro digital das aventuras compartilhadas. Quixadá não foi apenas explorada, mas vivida intensamente, graças à mágica dos encontros facilitados por uma simples aplicação.
